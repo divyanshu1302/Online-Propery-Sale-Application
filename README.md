@@ -1,1 +1,0 @@
-# Online-Propery-Sale-Application
